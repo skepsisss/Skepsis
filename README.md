@@ -12,7 +12,7 @@
  
                         —— • ✠ • ——
  
-                  I 𝐬𝐩𝐨𝐤𝐞 𝐒𝐩𝐚𝐧𝐢𝐬𝐡 𝐚𝐧𝐝 𝐚 𝐥𝐢𝐭𝐭𝐥𝐞 𝐄𝐧𝐠𝐥𝐢𝐬𝐡. 。₍ᐢ..ᐢ₎
+         ◞     I 𝐬𝐩𝐨𝐤𝐞 𝐒𝐩𝐚𝐧𝐢𝐬𝐡 𝐚𝐧𝐝 𝐚 𝐥𝐢𝐭𝐭𝐥𝐞 𝐄𝐧𝐠𝐥𝐢𝐬𝐡. 。₍ᐢ..ᐢ₎
  
  ![image](https://github.com/user-attachments/assets/3d11d977-72bf-4c50-8174-3aa3b5a9ce7d) ![image](https://github.com/user-attachments/assets/d12d88f0-d5fe-4aa9-9a9a-ae42f578bb72) ![image](https://github.com/user-attachments/assets/eed18893-bf23-4564-ba1c-6d85ae2a434e)
 
