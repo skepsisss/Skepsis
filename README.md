@@ -32,12 +32,9 @@
 ![image](https://github.com/user-attachments/assets/7a64d7c9-c731-49fb-98c0-a84dbd36564f)
 
 
-![image](https://github.com/user-attachments/assets/da66a2aa-8a48-40cd-9f60-d9668e53d0ef) ![image](https://github.com/user-attachments/assets/41fe3dbb-39b5-48ee-a0b8-643b6d27b759)
+![image](https://github.com/user-attachments/assets/da66a2aa-8a48-40cd-9f60-d9668e53d0ef) ![image](https://github.com/user-attachments/assets/41fe3dbb-39b5-48ee-a0b8-643b6d27b759) ![image](https://github.com/user-attachments/assets/de985359-518b-41c3-910e-5d309d0be945) ![image](https://github.com/user-attachments/assets/0443a1b6-70d2-4b78-9ca5-e4bf51e9ea85)![image](https://github.com/user-attachments/assets/de4e9700-b5fb-49d4-8d3b-d46071e72cd0) ![image](https://github.com/user-attachments/assets/58d60b2e-ed08-4552-9119-6bfec63c485a)
 
-![6 sin título_20250112201150](https://github.com/user-attachments/assets/94143924-a71d-43c3-ab6e-4e4a3259a51f)
-
-
-
+[![Instagram](https://img.icons8.com/color/48/000000/instagram-new.png)](https://instagram.com/mr.centelle__) [![Twitter](https://img.icons8.com/color/48/000000/twitter--v1.png)](https://instagram.com/MziiiMix__)
 
  
  ![image](https://github.com/user-attachments/assets/8bf98abd-6db5-4a39-8f20-2f19ebf3d58d)
@@ -47,3 +44,5 @@
 
 
 ![image](https://github.com/user-attachments/assets/3a590475-246d-46ed-a09e-83ec21b2a51a)
+
+
