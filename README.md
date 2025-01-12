@@ -1,9 +1,11 @@
 
 ![image](https://github.com/user-attachments/assets/3a590475-246d-46ed-a09e-83ec21b2a51a)
-![image](https://github.com/user-attachments/assets/93827c4d-1e79-4eb1-9398-a84b691ab36c)
+![image](https://github.com/user-attachments/assets/e2ba9e47-cc0e-4b8b-99c0-7df17c16b8e3)
+
 
 ![image](https://github.com/user-attachments/assets/24d98067-8b7a-48d3-9f26-c6789f486f18)          ![image](https://github.com/user-attachments/assets/ad2c1a7b-f93c-46d0-8838-fd26ec6fc3a2)
 
+ ![image](https://github.com/user-attachments/assets/1d249d19-459b-49d3-9983-eaa7a35d29ed)
 
 
            ﹙💭﹚〈〈﹑ 𝐌𝐲 𝐧𝐚𝐦𝐞 𝐢𝐬 𝐒𝐤𝐞𝐩𝐬𝐢𝐬 𝐚𝐧𝐝 𝐈 𝐥𝐨𝐯𝐞 𝐜𝐚𝐭𝐬 ﹢♡ ! 
