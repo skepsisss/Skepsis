@@ -1,15 +1,13 @@
 
 ![image](https://github.com/user-attachments/assets/3a590475-246d-46ed-a09e-83ec21b2a51a)
 
-![image](https://github.com/user-attachments/assets/487a69d1-3375-4470-a426-86ebb57ea2cc)
+![image](https://github.com/user-attachments/assets/30d1eed0-3624-4d64-b32d-3657b896c6d7)
 
 
 
 ![image](https://github.com/user-attachments/assets/24d98067-8b7a-48d3-9f26-c6789f486f18)          ![image](https://github.com/user-attachments/assets/ad2c1a7b-f93c-46d0-8838-fd26ec6fc3a2)
 
 ![image](https://github.com/user-attachments/assets/a94ae8e1-50fd-4baa-a68a-37c8b92e2036)
-
-
 
 
 
@@ -24,6 +22,9 @@
                         —— • ✠ • ——
  
          ◞     I 𝐬𝐩𝐨𝐤𝐞 𝐒𝐩𝐚𝐧𝐢𝐬𝐡 𝐚𝐧𝐝 𝐚 𝐥𝐢𝐭𝐭𝐥𝐞 𝐄𝐧𝐠𝐥𝐢𝐬𝐡. 。₍ᐢ..ᐢ₎
+
+   ![image](https://github.com/user-attachments/assets/c795e8fb-2203-4bae-800c-a62c2d42ba6b)
+
  
  ![image](https://github.com/user-attachments/assets/3d11d977-72bf-4c50-8174-3aa3b5a9ce7d) ![image](https://github.com/user-attachments/assets/d12d88f0-d5fe-4aa9-9a9a-ae42f578bb72) ![image](https://github.com/user-attachments/assets/eed18893-bf23-4564-ba1c-6d85ae2a434e)
 
