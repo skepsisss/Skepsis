@@ -17,6 +17,8 @@
 
 
 ![image](https://github.com/user-attachments/assets/5acab24a-c15e-4138-8432-212c89f75e06)
+![image](https://github.com/user-attachments/assets/96648457-5119-4969-9044-b19a1c07e402)
+
 
 
 
@@ -36,6 +38,8 @@
 
 ![image](https://github.com/user-attachments/assets/b783bbf0-07c2-4c68-89a2-f5e15d26c665) [![Instagram](https://img.icons8.com/color/48/000000/instagram-new.png)](https://instagram.com/mr.centelle__) [![Twitter](https://img.icons8.com/color/48/000000/twitter--v1.png)](https://instagram.com/MziiiMix__) [![Discord](https://img.shields.io/badge/Discord-5865F2?style=for-the-badge&logo=discord&logoColor=white)](https://discordapp.com/users/1328151921860673537)
 
+
+ ![image](https://github.com/user-attachments/assets/a94ae8e1-50fd-4baa-a68a-37c8b92e2036)
  
  ![image](https://github.com/user-attachments/assets/8bf98abd-6db5-4a39-8f20-2f19ebf3d58d)
 ![image](https://github.com/user-attachments/assets/3d11d977-72bf-4c50-8174-3aa3b5a9ce7d) ![image](https://github.com/user-attachments/assets/eed18893-bf23-4564-ba1c-6d85ae2a434e)
