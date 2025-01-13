@@ -34,7 +34,7 @@
 
 ![image](https://github.com/user-attachments/assets/da66a2aa-8a48-40cd-9f60-d9668e53d0ef) ![image](https://github.com/user-attachments/assets/41fe3dbb-39b5-48ee-a0b8-643b6d27b759) ![image](https://github.com/user-attachments/assets/de985359-518b-41c3-910e-5d309d0be945) ![image](https://github.com/user-attachments/assets/0443a1b6-70d2-4b78-9ca5-e4bf51e9ea85)![image](https://github.com/user-attachments/assets/de4e9700-b5fb-49d4-8d3b-d46071e72cd0) ![image](https://github.com/user-attachments/assets/58d60b2e-ed08-4552-9119-6bfec63c485a)
 
-[![Instagram](https://img.icons8.com/color/48/000000/instagram-new.png)](https://instagram.com/mr.centelle__) [![Twitter](https://img.icons8.com/color/48/000000/twitter--v1.png)](https://instagram.com/MziiiMix__) [![Discord](https://img.shields.io/badge/Discord-5865F2?style=for-the-badge&logo=discord&logoColor=white)](https://discordapp.com/users/1328151921860673537)
+![image](https://github.com/user-attachments/assets/b783bbf0-07c2-4c68-89a2-f5e15d26c665) [![Instagram](https://img.icons8.com/color/48/000000/instagram-new.png)](https://instagram.com/mr.centelle__) [![Twitter](https://img.icons8.com/color/48/000000/twitter--v1.png)](https://instagram.com/MziiiMix__) [![Discord](https://img.shields.io/badge/Discord-5865F2?style=for-the-badge&logo=discord&logoColor=white)](https://discordapp.com/users/1328151921860673537)
 
  
  ![image](https://github.com/user-attachments/assets/8bf98abd-6db5-4a39-8f20-2f19ebf3d58d)
